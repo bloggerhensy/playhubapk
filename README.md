@@ -1,1 +1,1 @@
-# playhubapk
+[PlayHub Apk](https://playhubapk.com/) is an amazing app for Android devices that allow you to watch movies and shows for free. You can explore movies, series, channels, and more through online streaming without paying anything. 
